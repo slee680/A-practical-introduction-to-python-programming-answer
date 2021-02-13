@@ -5,8 +5,7 @@ I didn't listen to the university lecture because the lecture was too fast and d
 After I printed this pdf with 13 dollars, I found out there is no answer sheet for this book.
 So I solve this questions all by myself. There might be errors.
 Enjoy my free answer keys and if you think it was helpful give me a star.
-
-
+At first, I starred myself :) ^^ ^ㅗ^
 
 
 
