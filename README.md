@@ -1,5 +1,4 @@
 # A-practical-introduction-to-python-programming-answer
-answer keys
 I'm a student at UIC
 I might be kicked out of UIC soon
 I didn't listen to the university lecture because the lecture was too fast and difficult for me. Instead, I studied this book alone.
